@@ -16,7 +16,7 @@ byi:
 
 - do not sexualize me.
 
-- dni:
+dni:
   
 - basic dni criteria, z**philes, p*dos, proshippers, etc.
 - drama starters.
