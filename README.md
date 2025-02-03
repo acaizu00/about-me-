@@ -8,6 +8,7 @@ byi:
 - please be kind. if you're gonna be mean as a joke please tell me or use tone tags, otherwise i can't tell.
 - stay platonic. i'm uncomfortable with flirts. but if it's just compliments thats okay!
 - i'm always c+h friendly! if you see me hanging around dont be shy to sit/cuddle by me. i won't reject.
+- i'm not much of a shipper sadly. i just like whatever is canon. 
 - do not sexualize me.
 
 - dni:
