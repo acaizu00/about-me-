@@ -3,9 +3,9 @@
 hi!! if ur reading this thank you for stopping by! the list below is just some stuff to know about me byi.
 
 byi:
-- i've been having quite a few moments where i've had to call out minors in the 18+ server - so i will be asking for your age to be sure you're an adult. 
+- i'm a very optimistic and a half glass full kind of person! 
 
-- i'm not much of a talker sadly. but after i get to know you i'll be alot more chatty (if you'd like me to be, ofc)
+- i'm not much of a talker at first. but after i get to know you i'll be alottt more chatty (if you'd like me to be, ofc) 
   
 - stay platonic.
   
