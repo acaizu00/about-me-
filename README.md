@@ -16,4 +16,4 @@ dni:
   
 - basic dni criteria, z**philes, p*dos, etc. i hide and block freely otherwise
   
-- MINORS. anything under 18 is an instant block/hide. idc if you feel "mature". gtho
+- MINORS. you have your own server for a reason!!
