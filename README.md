@@ -4,15 +4,15 @@ hi! if ur reading this thank you for stopping by! the list below is just some st
 
 byi:
 
-- feel free to call me swanne! 
+- feel free to call me swanne! feminine pronouns only.
 
 - i'm not much of a talker at first. but after i get to know you i'll certainly be a chatterbox.
 
 - usually afk, whispers are a must. if i'm not answering your interactions outside of whisper i'm not ignoring, i'm just afk 😅
-  
-- all my interactions are always platonic!
 
-- cuddles/kisses/boops are okay!
+- cuddles/kisses/boops are welcome! unless i'm already sitting with friends just ask :)
+
+- do not sexualize me please.
 
 dni:
   
