@@ -4,14 +4,15 @@ hi! if ur reading this thank you for stopping by! the list below is just some st
 
 byi:
 
-- feel free to call me swanne! i go by she/her prns.
+- feel free to call me swanne! i go by she/her/hers prns only.
 
-- i'm not much of a talker at first. but after i get to know you i'll certainly be a chatterbox.
+- i'm not much of a talker at first. but after i get to know you i'm a certified yapper 
 
 - usually afk, whispers are a must. if i'm not answering your interactions outside of whisper i'm not ignoring, i'm just afk 😅
 
-- do not sexualize me please, i'm another human being just like you.
+- do not sexualize me, please.
 
+- don't copy or take any inspo from my skins. if there's smthn you'd like to know, just ask. 
 
 dni:
   
