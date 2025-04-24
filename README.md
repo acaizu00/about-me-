@@ -10,14 +10,11 @@ byi:
 
 - usually afk, whispers are a must. if i'm not answering your interactions outside of whisper i'm not ignoring, i'm just afk 😅
 
-- c+h friendly, but if i'm already sitting with someone just be sure to ask first! :)
-
-- huge lover of all things final fantasy related (if you've seen me sitting around a few times i think you've catched this drift already)
-
 - do not sexualize me please, i'm another human being just like you.
+
 
 dni:
   
-- basic dni criteria, i hide and block freely otherwise. 
+- basic dni criteria, any p/dos, pr/shippers, zoos, etc. i hide and block freely. 
   
-- MINORS. GET OUTTT
+- MINORS.
