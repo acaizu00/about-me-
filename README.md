@@ -12,7 +12,7 @@ byi:
 
 - do not sexualize me, please.
 
-- don't copy or take any inspo from my skins. if there's smthn you'd like to know, just ask. 
+- do NOT copy or take any inspo from my skins. if there's smthn you'd like to know, all u gotta do is ask!
 
 dni:
   
