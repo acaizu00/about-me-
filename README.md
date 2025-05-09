@@ -14,7 +14,7 @@ byi:
 
 - do NOT copy or take any inspo from my skins w/o my permission.
 
-- c+h encouraged if we're friends or i know you.
+- c+h encouraged/permitted if we're friends or i know you.
 
 - dont be weird and we'll be cool.
 
