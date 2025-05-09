@@ -1,6 +1,6 @@
 # about-me-
 
-hi! if you're reading this thank you for stopping by! the list below is just some stuff to know about me byi.
+heyyy if you're reading this thank you for stopping by! the list below is just some stuff to know about me byi.
 
 byi:
 
