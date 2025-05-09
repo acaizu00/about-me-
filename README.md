@@ -4,18 +4,18 @@ hi! if ur reading this thank you for stopping by! the list below is just some st
 
 byi:
 
-- feel free to call me swanne! i go by she/her/hers only.
+- feel free to call me swan or swanne! i go by she/her/hers. 
 
-- i'm not much of a talker at first. but after i get to know you i'm a certified yapper 
+- i'll talk as much as you will, i'll match the energy. (i mean that in a good way)
 
-- usually afk, whispers are a must. if i'm not answering your interactions outside of whisper i'm not ignoring, i'm just afk 😅
+- usually afk so w2i is a must. 😅
 
-- do not sexualize me, please.
+- dont sexualize me as a person.
 
-- do NOT copy or take any inspo from my skins. if there's smthn you'd like to know, all u gotta do is ask!
+- do NOT copy or take any inspo from my skins w/o my permission.
 
 dni:
   
-- basic dni criteria, any p/dos, pr/shippers, zoos, etc. i hide and block freely. 
+- basic dni criteria, any p/dos, pr/shippers, zoos, etc. i hide and block freely
   
-- MINORS.
+- MINORS. gtho
