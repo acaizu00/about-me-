@@ -14,8 +14,10 @@ byi:
 
 - do NOT copy or take any inspo from my skins w/o my permission.
 
+- c+h encouraged if we're friends or i know you.
+
 dni:
   
-- basic dni criteria, any p/dos, pr/shippers, zoos, etc. i hide and block freely
+- basic dni criteria. i hide and block freely otherwise.
   
 - MINORS. gtho
