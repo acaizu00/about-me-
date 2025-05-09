@@ -1,6 +1,6 @@
 # about-me-
 
-hi! if ur reading this thank you for stopping by! the list below is just some stuff to know about me byi.
+hi! if you're reading this thank you for stopping by! the list below is just some stuff to know about me byi.
 
 byi:
 
@@ -16,8 +16,10 @@ byi:
 
 - c+h encouraged if we're friends or i know you.
 
+- dont be weird and we'll be cool.
+
 dni:
   
 - basic dni criteria. i hide and block freely otherwise.
-  
+ 
 - MINORS. gtho
