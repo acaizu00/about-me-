@@ -4,7 +4,7 @@ hi! if ur reading this thank you for stopping by! the list below is just some st
 
 byi:
 
-- feel free to call me swanne! i go by she/her/hers prns only.
+- feel free to call me swanne! i go by she/her/hers only.
 
 - i'm not much of a talker at first. but after i get to know you i'm a certified yapper 
 
