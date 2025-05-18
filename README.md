@@ -14,12 +14,12 @@ byi:
 
 - do NOT copy or take any inspo from my skins w/o my permission.
 
-- c+h encouraged/permitted if we're friends or i know you.
+- c+h encouraged/permitted if we're friends or if i know you. 
 
 - dont be weird and we'll be cool.
 
 dni:
   
-- basic dni criteria. i hide and block freely otherwise.
+- basic dni criteria. i hide and block freely otherwise
  
-- MINORS. gtho
+- MINORS. gtho 
