@@ -12,14 +12,16 @@ byi:
 
 - dont sexualize me as a person.
 
-- do NOT copy or take any inspo from my skins w/o my permission.
+- do NOT copy or take any inspo from my skins w/o my permission. i will 100% call you out on it. 
 
-- c+h encouraged/permitted if we're friends or if i know you. 
+- c+h encouraged/permitted only if i recognize/know you. 
 
 - dont be weird and we'll be cool.
 
+- do not assume i'm cuddle-shipping when sitting with friends.
+
 dni:
   
-- basic dni criteria. i hide and block freely otherwise
+- basic dni criteria. proshippers, zoos, etc. i hide and block freely otherwise
  
 - MINORS. gtho 
