@@ -22,6 +22,6 @@ byi:
 
 dni:
   
-- basic dni criteria. proshippers, zoos, etc. i hide and block freely otherwise
+- basic dni criteria. minor x adult shippers, zoos, yk the drill. i hide and block freely otherwise
  
 - MINORS. gtho 
