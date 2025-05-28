@@ -1,6 +1,6 @@
 # about-me-
 
-heyyy if you're reading this thank you for stopping by! the list below is just some stuff to know about me byi.
+heyyy hi welcome to the most unaesthetic github youll ever see!
 
 byi:
 
