@@ -12,9 +12,11 @@ byi:
 
 - dont sexualize me as a person.
 
-- do NOT copy or take any inspo from my skins w/o my permission. i will 100% call you out on it. 
+- do NOT copy or take any inspo from my skins w/o my permission. i will 100% call you out on it.
 
-- c+h encouraged/permitted only if i recognize/know you. 
+- i'd like to think i'm pretty easy to have a convo with. u can quite literally talk to me abt anything and i'll be happy to chat.
+
+- c+h freely if i recognize/know you.
 
 - dont be weird and we'll be cool.
 
