@@ -18,8 +18,6 @@ byi:
 
 - dont be weird and we'll be cool.
 
-- do not assume i'm cuddle-shipping when sitting with friends.
-
 dni:
   
 - basic dni criteria. proshippers, zoos, etc. i hide and block freely otherwise
