@@ -16,10 +16,12 @@ byi:
 
 - i'd like to think i'm pretty easy to have a convo with. u can quite literally talk to me abt anything and i'll be happy to chat.
 
-- c+h encouraged/welcomed if i recognize/know u or have you added on pt.
+- c+h encouraged/welcomed if i recognize/know u or have you added on pt. if we havent talked, dont do it. 
 
 - dont be weird and we'll be cool. 
 
+- dont assume i ship the characters i sit as w/ my friends
+  
 dni:
   
 - basic dni criteria. minor x adult shippers, zoos, yk the drill. i hide and block freely otherwise
