@@ -16,9 +16,9 @@ byi:
 
 - i'd like to think i'm pretty easy to have a convo with. u can quite literally talk to me abt anything and i'll be happy to chat.
 
-- c+h freely if i recognize/know you.
+- c+h allowed if i recognize/know you.
 
-- dont be weird and we'll be cool.
+- dont be weird and we'll be cool. 
 
 dni:
   
