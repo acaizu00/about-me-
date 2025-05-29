@@ -1,6 +1,6 @@
 # about-me-
 
-heyyy hi welcome to the most unaesthetic github youll ever see!
+heyyy hi welcome to the most unaesthetic github youll ever see 
 
 byi:
 
@@ -10,7 +10,7 @@ byi:
 
 - usually afk so w2i is a must. 😅
 
-- dont sexualize me as a person.
+- dont sexualize me as a person. 
 
 - do NOT copy or take any inspo from my skins w/o my permission.
 
