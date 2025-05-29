@@ -20,8 +20,6 @@ byi:
 
 - dont be weird and we'll be cool. 
 
-- dont assume i ship the characters i sit as w/ my friends
-  
 dni:
   
 - basic dni criteria. minor x adult shippers, zoos, yk the drill. i hide and block freely otherwise
